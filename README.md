@@ -47,4 +47,4 @@ Systems and Usable Security-IIT Indore
 ##  Connect with Me
 [LinkedIn](https://www.linkedin.com/in/krithi-d/)
 [GitHub](https://github.com/Krithi-D)
-[Resume](https://drive.google.com/file/d/16yeVJdVi4xzJz6ZtIkOYSJNiYrNZZcXD/view?usp=sharing) 
+[Resume](https://drive.google.com/file/d/1MNJySUI0FluOGjLcRCFMt4F9vfgH7u6e/view?usp=sharing) 
